@@ -1,5 +1,2 @@
 # Lyer
-Fucking 
-Lyer
-SQN
-SQS
+ Soo carry on
